@@ -1,5 +1,5 @@
 - 👋 Hi, I’m chhavi
-- 👀 I’m interested in a techinfusion
+- 👀 I’m interested in a tech infused advancement
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on new adventrous projects
 - 📫 Connect me on https://www.linkedin.com/in/chhavisingh02/
